@@ -1,2 +1,2 @@
-Many learning materials are too heavery to learn and remerber.
-Let's easy remeber and use them.
+Many learning materials are too heavery to learn and remember.
+Let's easy remember and use them.
